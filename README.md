@@ -1,1 +1,0 @@
-# jamesschmeltz.github.io
